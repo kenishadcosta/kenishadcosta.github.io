@@ -1,4 +1,3 @@
-# Kenisha D'costa
 
 ### Education 
 Health Informatics, MS
